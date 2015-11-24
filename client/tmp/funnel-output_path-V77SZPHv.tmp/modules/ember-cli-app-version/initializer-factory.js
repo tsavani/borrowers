@@ -1,0 +1,1 @@
+/Users/tsavani/twinks/ember/borrowers/client/tmp/funnel-input_base_path-lb8oVnmg.tmp/0/initializer-factory.js

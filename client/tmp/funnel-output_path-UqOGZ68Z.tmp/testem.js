@@ -1,0 +1,1 @@
+/Users/tsavani/twinks/ember/borrowers/client/tmp/funnel-input_base_path-Hq2ckAWp.tmp/0//testem.js

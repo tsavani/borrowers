@@ -1,1 +1,0 @@
-/Users/tsavani/twinks/ember/borrowers/client/tmp/funnel-input_base_path-N8wDICiK.tmp/0//app-boot.js
